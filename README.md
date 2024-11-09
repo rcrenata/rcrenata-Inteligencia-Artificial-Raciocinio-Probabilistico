@@ -1,1 +1,1 @@
-[tp2.inteligencia.artificial.md](https://github.com/user-attachments/files/17685452/tp2.inteligencia.artificial.md)
+[2º Trabalho - Inteligência Artificial.pdf](https://github.com/user-attachments/files/17685697/2.Trabalho.-.Inteligencia.Artificial.pdf)
